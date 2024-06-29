@@ -1,6 +1,6 @@
 #  uc填空题com我先来填什么
 
-<a href="https://6h8k.top ">→→→点此进入最新入口←←←</a>
+[<a href="https://6h8k.top ">→→→点此进入最新入口←←←</a>](https://github.com/koetq/huyki/issues/1)
 
 
 uc填空题com我先来填什么独长夏。斗寒洲虽是极北，却不是正北，反而是在西北方向。
